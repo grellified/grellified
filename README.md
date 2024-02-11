@@ -3,4 +3,4 @@
 
 ![tumblr_c1427e382473d48c5470144f50af0c1e_6ff5c49a_1280](https://github.com/grellified/grellified/assets/151553194/4a70e8ae-ada4-47f7-9ade-3b0d6992aba0)
 
-the homos real
+i luvvvv them kisses them hugs them mwahh mwahhhhhh i lovvv themmmm mwaaaahhhh!!!111!1
