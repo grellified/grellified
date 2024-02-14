@@ -1,4 +1,2 @@
-
-![image](https://github.com/grellified/grellified/assets/151553194/30df9c0d-a187-423f-8d03-b2b83e72c398)  
-
-i love ehr so much i would do anythting for her pslslsls pls pls pls once chance grell slssssp lsp lspls pslslllslp lsllsPELASDE
+<img src="https://i.pinimg.com/originals/3e/b4/bd/3eb4bdeec922d4784580591c1608cb16.gif" alt="Grell sutcliff | Black butler grell, Black butler, Black butler kuroshitsuji"/>
+ <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/84fc9125-0315-46d6-8867-bd523f40bdf3/d547s8c-eb21dc20-a8d7-4747-9617-5687b14fba31.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzg0ZmM5MTI1LTAzMTUtNDZkNi04ODY3LWJkNTIzZjQwYmRmM1wvZDU0N3M4Yy1lYjIxZGMyMC1hOGQ3LTQ3NDctOTYxNy01Njg3YjE0ZmJhMzEuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.A_uZmPVLArnCn1ceL6oxb6bbsqvS9y6ZZVup5vh7mSs" alt="Grell hump dance"/> i love her sm my silly little grim reaper i luvvv her so muchhh kisses grell mwagggg mwahhh mwahhh!!!
