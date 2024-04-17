@@ -7,7 +7,7 @@
 <img src="blob:chrome-untrusted://media-app/106c6c27-a4bd-49e6-af44-897fc936f6c1" />![image](https://github.com/grellified/grellified/assets/151553194/8aca20e0-ba9c-4a62-b140-0bfcd0e97acf)
 <img src="blob:chrome-untrusted://media-app/cf83101a-be5d-48d1-838a-b5b2581c96c0" />![image](https://github.com/grellified/grellified/assets/151553194/627f343f-427d-4729-b0a8-e8c4d3903440)
 ![image](https://github.com/grellified/grellified/assets/151553194/0993bcb1-1bb2-4cb4-b7b5-7e1ba28357fc)
-<img src="https://i.pinimg.com/474x/39/c3/9b/39c39b0189cbc97717bfb7dae9cec94c.jpg" alt="This may contain: an anime character with red eyes and black hair"/>![image]
+<img src="https://i.pinimg.com/474x/39/c3/9b/39c39b0189cbc97717bfb7dae9cec94c.jpg" alt="This may contain: an anime character with red eyes and black hair"/>
 <img src="blob:chrome-untrusted://media-app/703da5e1-251f-4ae7-99b6-b5efb99da5ef">![image](https://github.com/grellified/grellified/assets/151553194/c6be4356-d1c4-4a3d-9401-2ce0d60cdd76)
 <img src="blob:chrome-untrusted://media-app/7b92eb6d-016b-4bbd-8ee2-84cc9d701c59" />![image](https://github.com/grellified/grellified/assets/151553194/437c7652-1b30-431e-b929-513496cbae73)
 <img src="https://i.pinimg.com/736x/83/31/76/8331760062cc2b484f131170b26c3d1e">![image](https://github.com/grellified/grellified/assets/151553194/05b5d2aa-c322-435d-93e1-1ca688e82b91)
