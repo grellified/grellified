@@ -1,4 +1,4 @@
-![417ca453063c4561da934dda3c1ee2bc](https://github.com/grellified/grellified/assets/151553194/757f4ef4-53f0-46e8-89ff-26ba900dc877) characters i like phtoto dumb hahahahaaahah
+![417ca453063c4561da934dda3c1ee2bc](https://github.com/grellified/grellified/assets/151553194/757f4ef4-53f0-46e8-89ff-26ba900dc877) photo dump of characters i like hahahahaaahah
 ![98cd55fc1a6daa5b55fa004446002f95](https://github.com/grellified/grellified/assets/151553194/d008e071-78a8-40f6-86c7-3383599183c7)
 <img src="https://media1.tenor.com/m/RFeoDrDfv2AAAAAC/omori-aubrey.gif" alt="Omori Aubrey GIF - Omori Aubrey Omori Aubrey GIFs"/>
 <img src="blob:chrome-untrusted://media-app/b8719a51-3b33-4469-8671-c83f4e287601" >![image](https://github.com/grellified/grellified/assets/151553194/e57f149b-415b-439e-985d-d4654fad8204)
