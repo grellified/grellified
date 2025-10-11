@@ -1,3 +1,6 @@
+<img src="https://files.catbox.moe/2iltee.png"/>
+
+
 <p align="center">
   <img src="https://c.tenor.com/0tITiJlnTCIAAAAd/tenor.gif"/>
 </p>
@@ -66,6 +69,7 @@ ummm um c+h always welcome ummmm sign my ata
 
 </p>
 
+<img src="https://files.catbox.moe/2iltee.png"/>
 
 
 
