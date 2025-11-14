@@ -17,7 +17,7 @@ ummm um c+h always welcome ummmm sign my ata
 </p>
 
 <p align="center">
-	big cielois fan....hahaah
+	big cielois & gerita fan....hahaah
 </p>
 
 <p align="center">
